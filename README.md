@@ -1,2 +1,0 @@
-# ngdty.github.io
-yttv
